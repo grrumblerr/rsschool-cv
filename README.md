@@ -1,1 +1,1 @@
-# rsschool-cv
+https://grrumblerr.github.io/rsschool-cv/
